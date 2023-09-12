@@ -21,8 +21,8 @@ Images of mammary organoids courtesy of Dr Bethan Lloyd-Lewis (University of Bri
 
 ---
 Contact information: 
-- Email: moorej16@cardiff.ac.uk 
-- Website: https://www.cardiff.ac.uk/people/research-students/view/1710080-moore-joshua 
+- Email: joshua.moore@maths.ox.ac.uk
+- Website: https://www.maths.ox.ac.uk/people/joshua.moore
 - Google scholar: https://scholar.google.com/citations?user=tc7xnT8AAAAJ&hl=en
 ---
 
